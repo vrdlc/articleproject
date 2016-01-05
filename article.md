@@ -2,7 +2,7 @@
 
 ###WASHINGTON BY JULIA EDWARDS AND JOEL SCHECTMAN###
 
-
+! [This is the VW Logo and they are in TROUBLE](http://lorempixel.com/400/200/)
 #####The logo of German carmaker Volkswagon is seen at a VW dealership in the Queens borough of New York, September 21st, 2015#####
 ---------------------------------------------------------------------
 
